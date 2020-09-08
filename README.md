@@ -4,6 +4,7 @@
 Francklin Benjamin, Evens Emmanuel et Max François Millien
 
 Université Quisqueya, École doctorale Société et Environnement, 218 avenue Jean Paul II, Port-au-Prince, Haïti
+
 Dupuy [1] noted “what is terrible about the disaster is that not only was it believed that it couldn’t happen, even though there was every reason to know that it would, but once it had occurred it appeared to belong to the normal order of things […] We have acquired the means to destroy the planet and ourselves, but we haven’t changed the way we think” [1]. 
 During the first half of 2020, the world was more or less at a standstill since every sector of activity vital for the planet had been paralyzed within a cou
 SRAS-CoV-2, a revelator of weaknesses and disparities between countries 
